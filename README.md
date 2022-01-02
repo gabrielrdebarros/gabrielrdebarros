@@ -1,5 +1,6 @@
-### Hi there 👋
+### Hello humans, my name is @GabrielRdeBarros, welcome!! 👋👋
 
+ *---Your leadership will change the way you strategize a winning team::1st_place_medal:---*
 <!--
 **gabrielrdebarros/gabrielrdebarros** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
